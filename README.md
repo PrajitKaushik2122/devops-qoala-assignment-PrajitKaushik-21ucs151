@@ -1,1 +1,0 @@
-# devops-qoala-assignment-PrajitKaushik-21ucs151
